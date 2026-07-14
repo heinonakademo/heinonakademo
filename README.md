@@ -7,7 +7,7 @@
 更生ではなく更新中。
 
 ## 📺 YouTube
-https://youtube.com/@heinonakademo
+[https://youtube.com/@heinonakademo](https://youtube.com/channel/UCbxiX6X8LQ0KSZk3UzGYxlg?si=vkOC1u36uHHaX4Qr)
 
 ## 🛠️ このリポジトリについて
 
